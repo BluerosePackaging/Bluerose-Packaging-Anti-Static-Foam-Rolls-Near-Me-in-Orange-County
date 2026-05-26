@@ -110,6 +110,6 @@ Their adaptability allows businesses to use a single material across various app
 
 ## Ready to Upgrade Your ESD Packaging Protection?
 
-Contact bluerose packaging today to discuss anti static foam rolls, esd protective foam rolls, conductive foam packaging rolls, and electrostatic discharge foam rolls solutions for your business. We provide reliable packaging support for electronics packaging foam rolls, semiconductor handling foam rolls, pcb protection foam rolls, telecom equipment foam rolls, and data center equipment foam across Orange County.
+Contact [**bluerose packaging today**](https://www.bluerosepackaging.com/contact/) to discuss anti static foam rolls, esd protective foam rolls, conductive foam packaging rolls, and electrostatic discharge foam rolls solutions for your business. We provide reliable packaging support for electronics packaging foam rolls, semiconductor handling foam rolls, pcb protection foam rolls, telecom equipment foam rolls, and data center equipment foam across Orange County.
 
 Our team at bluerose packaging helps you choose the right protective foam wrap rolls and conductive foam Orange County supply solutions to ensure maximum industrial equipment protection foam, safe medical device packaging foam, and secure consumer electronics packaging foam across your entire supply chain.
